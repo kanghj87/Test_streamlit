@@ -1,3 +1,12 @@
 # test_streamlit
-My streamlit link : https://kanghj87-test-streamlit-main-d2gm28.streamlitapp.com/
-나의 스트리밋 링크 : https://kanghj87-test-streamlit-main-d2gm28.streamlitapp.com/
+##My streamlit link : https://kanghj87-test-streamlit-main-d2gm28.streamlitapp.com/
+##나의 스트리밋 링크 : https://kanghj87-test-streamlit-main-d2gm28.streamlitapp.com/
+
+내용ㅁㄴㅇㄹ;ㅏㅓㅁㄴㅇ;라ㅓㅁㄴㅇ;라먼ㅇ;람언리ㅓㅁㅇㄴ;리만얼;ㅁㄴ아ㅓㄹ;ㅁㄴ아ㅓㄻ;ㄴ아럼ㄴㅇ;럼;ㄴ아럼ㄴㅇ;ㅏ럼ㄴㅇㄹ
+ㅁㄴㅇ라ㅓㅁㄴㅇ라ㅓㅁㄴㅇ;라ㅓㅁㄴㅇ;럼ㄴㅇ;리ㅏㅓㅁㅇㄴ;ㅣㅏ럼ㄴㅇ;ㅣㅏㄹ먼이;ㅏ러
+ㅁ나럼ㄴ아러;ㅁㄴ아ㅓㄹ;ㅁㄴㅇ럼ㄴ;ㅇ라ㅓㅁㄴㅇㄹ;ㅏㅁㄴ얼민ㅇ;ㅏㅓㄹ
+
+
+ㅇ럼ㄴ아럼ㄴㅇㅇㄴㄻㄴㅇㄹㄴㅇㅁㄴ아럼ㄴ아럼ㄴㅇ;리ㅏㅓㅁㄴㅇ;람ㄴ얼;민아ㅓㄹ;미ㅏㄴ얼민아ㅓㄹ;ㅁㄴ이ㅏ럼ㄴ
+말넘ㄴ아럼ㄴㅇ;람ㄴ얼;ㅣ망널;민아ㅓㄹ;ㅁㄴ이ㅏ럼ㄴㅇ;리만얾ㄴ;이람넝ㄹ
+ㅁㅇ니ㅏ럼ㄴㅇ;라ㅓㅁㅇㄴ;리ㅓㅁㅇ니;ㅏ럼ㄴ이ㅏ럼ㄴㅇㄻㄴㅇㄻㄴㅇㄹ
